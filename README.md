@@ -1,0 +1,2 @@
+# skillsiderearn
+get mony
